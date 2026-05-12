@@ -22,6 +22,7 @@ There are so many moments where you’ve been strong without anyone noticing, wh
 If I could wish for one thing beyond your happiness, it would be that you always stay true to yourself. Don’t let the world change the good parts of you. Keep your kindness, your energy, your way of caring—even if not everyone understands it.
 No matter where life takes you, I hope you always find reasons to smile. And even on the days when things feel heavy, I hope you remember that better days always come back.
 Thank you for being you. Truly.
+hope we meet soon
 Happy Birthday once again. 🎂💙
 — [abhay]`;
 
